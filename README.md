@@ -1,2 +1,0 @@
-# plazadelacultura
-pagina de multimedia
